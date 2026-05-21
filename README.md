@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing at the moment
 - 📫 How to reach me discord kay_dimonds
 - 😄 Pronouns: her/she
-- ⚡ Fun fact: no idea
+- ⚡ Fun fact: I love redbulls
 
 <!---
 AlgoKay/AlgoKay is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
